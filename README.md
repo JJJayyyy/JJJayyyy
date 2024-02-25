@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Junyao (Jay) Zhang!
+## Hi there 👋 I'm Junyao Zhang!
 
 **`About me`**
 
